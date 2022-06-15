@@ -1,4 +1,5 @@
-### Oiee eu sou a Sarah Conti✌❤️
+### Oiee eu sou a Sarah Conti✌❤️ E você pode me encontrar no armário. 
+Gay
 
 <!--
 **SarahFConti/SarahFConti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
